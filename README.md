@@ -9,3 +9,7 @@ Meu nome e Jefferson Kaua Iarosz de França.
 - ### Voce pode entrar em contato comigo 📧
 
 - jefferson.franca@escola.pr.gov.br
+
+
+
+![](https://media.tenor.com/5bLXRBgxTJQAAAAC/narcos-pablo-escobar.gif)
